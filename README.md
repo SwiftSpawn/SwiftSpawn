@@ -1,4 +1,4 @@
-# Aboutme
+# About me
 Pronouns: Any! (She/her, they/them and he/him) I prefer they/them if we're not friends/you don't know me.
 
 
