@@ -1,6 +1,9 @@
 # Aboutme
 Pronouns: Any! (She/her, they/them and he/him) I prefer they/them if we're not friends/you don't know me.
 
+
+Please do not copy/(heavily) inspire off of my skins and claim them as your own! And if you don't claim them as your own, just seeing a skin I spent an hour or so of making get copied makes me sad :(
+
 Hey, I'm Meowscarada (not really-), you can call me that or Nine/Coyo or come up with a nickname for me! I love Pokémon and when I'm ever making a skin it's **most likely** gonna be a Pokémon, XD. Nowadays I'm on Pony Town alot, so feel free to interact and chat with me whenever you want! But homo/transphobes, mappride and zoo's DNI please, it's just so gross... Anywayyy... I'm into a lot of fandoms, current main ones are Pokémon, Murder Drones, TADC and Sonic the Hedgehog (I probably forgot some). If you're into one of these fandoms please interact with me if you want to! Even if you aren't, you're still free to interact! ^_^ I absolutely love to chat and meet new people. Though I am a bit of an introvert online, I'm not the best at conversations to people I've just met, but I still try my best to have a fun conversation.
 C+H are also allowed at anytime. Like I said, I love to meet new people!
 
