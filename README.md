@@ -10,6 +10,7 @@ C+H are also allowed at anytime. Like I said, I love to meet new people!
 A couple kins of mine, just for the funnies: J from Murder Drones, maybe Cyn too, Shadow the Hedgehog, Nine from Sonic Prime, and whatever. I think I might have more-
 RAHH I LOVE MEOWSCARADA (Not in a weird way!!! I don't know how anyone could ever-) 
 
+Also, I am super sensitive so please do not say anything that you know/think might hurt me, unless it's as a joke. But if it's a bad joke, it'll probably still hurt my feelings in some way. It makes me insecure about our friendship, if we are friends.
 
 But seriously, if you ever want to please interact I'm quite lonely when most of my friends are offline-
 
