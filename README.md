@@ -7,7 +7,7 @@ I'm not super active on Pony Town anymore but I can come on once in a while. I l
 I'm into a couple fandoms, I'll name them: Dandy's World, Poppy Playtime, Sonic the Hedgehog, Pokémon, Super Cat Tales, Murder Drones, Indigo Park, Warrior Cats, Vocaloid and that's about it!
 Besides the fact I'm into quite alo of fandoms, I also fictkin some characters! Though I'm not sure of every single one and it could still change, I'll name them anyway: Dandy and Shelly from Dandy's World, Shadow from STH and Nine from Sonic Prime, CatNap, Scourge and Ravenpaw, and J and Cyn from Murder Drones. 
 
-![Dandy](https://www.google.com/url?sa=i&url=https%3A%2F%2Fdandys-world-robloxhorror.fandom.com%2Ff%2Fp%2F4400000000000051465%2Fr%2F4400000000000270940&psig=AOvVaw2XrOqGH52JDZ9v07IWWnwl&ust=1741176017493000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCLjfsKKw8IsDFQAAAAAdAAAAABAS)
+![Dandy](https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/4/4a/Dandy.png/revision/latest?cb=20210920214612)
 
 I love cats, I know there's no reason for you to know this but I LOVE CATS. THEY'RE SO SILLY AND CUTE AND RAHH!!! 
 
