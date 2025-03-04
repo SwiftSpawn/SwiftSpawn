@@ -1,7 +1,7 @@
 # About me
 Hello! My name's Meow but you can call me Nine, or whatever else you like / come up with a silly nickname for me!! I don't really mind which pronouns you use for me, but I prefer he/they.
 
-[Nine](https://tenor.com/nl/view/sonic-prime-tails-nine-fox-3d-animated-animation-gif-3045156479841175603)
+![Nine](https://tenor.com/nl/view/sonic-prime-tails-nine-fox-3d-animated-animation-gif-3045156479841175603)
 
 I'm not super active on Pony Town anymore but I can come on once in a while. I love to make new friends on there too!
 I'm into a couple fandoms, I'll name them: Dandy's World, Poppy Playtime, Sonic the Hedgehog, Pokémon, Super Cat Tales, Murder Drones, Indigo Park, Warrior Cats, Vocaloid and that's about it!
