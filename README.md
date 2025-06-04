@@ -1,4 +1,4 @@
-# About me
+# About me! ฅ^•ﻌ•^ฅ
 Hello! My name's Meow, you can call me Nine, Spawn or whatever else you like / come up with a silly nickname for me!! I don't really mind which pronouns you use for me, but I prefer he/they.
 
 Please do not copy any of my skins. If you want to take inspiration from one then that's fine but please ask me beforehand if I'm fine with it. As long as the skin you want to take inspo from is NOT one of my own OC's and not very heavy inspo, then I am most likely to be fine with it!!
