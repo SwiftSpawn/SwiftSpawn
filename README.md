@@ -1,13 +1,11 @@
 # About me
-Hello! My name's Meow but you can call me Nine, or whatever else you like / come up with a silly nickname for me!! I don't really mind which pronouns you use for me, but I prefer he/they.
+Hello! My name's Meow, you can call me Nine, Spawn or whatever else you like / come up with a silly nickname for me!! I don't really mind which pronouns you use for me, but I prefer he/they.
 
-![Nine](https://tenor.com/nl/view/sonic-prime-tails-nine-fox-3d-animated-animation-gif-3045156479841175603)
 
 I'm not super active on Pony Town anymore but I can come on once in a while. I love to make new friends on there too!
 I'm into a couple fandoms, I'll name them: Dandy's World, Poppy Playtime, Sonic the Hedgehog, Pokémon, Super Cat Tales, Murder Drones, Indigo Park, Warrior Cats, Vocaloid and that's about it!
 Besides the fact I'm into quite alo of fandoms, I also fictkin some characters! Though I'm not sure of every single one and it could still change, I'll name them anyway: Dandy and Shelly from Dandy's World, Shadow from STH and Nine from Sonic Prime, CatNap, Scourge and Ravenpaw, and J and Cyn from Murder Drones. 
 
-![Dandy](https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/4/4a/Dandy.png/revision/latest?cb=20210920214612)
 
 I love cats, I know there's no reason for you to know this but I LOVE CATS. THEY'RE SO SILLY AND CUTE AND RAHH!!! 
 
