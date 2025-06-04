@@ -7,6 +7,10 @@ I'm not super active on Pony Town anymore but I can come on once in a while. I l
 I'm into a couple fandoms, I'll name them: Dandy's World, Poppy Playtime, Sonic the Hedgehog, Pokémon, Super Cat Tales, Murder Drones, Indigo Park, Warrior Cats, Vocaloid, Forsaken, Let Him Go and that's about it!
 Besides the fact I'm into quite alo of fandoms, I also fictkin some characters! Though I'm not sure of every single one and it could still change, I'll name them anyway: Dandy and Shelly from Dandy's World, Shadow from STH and Nine from Sonic Prime, CatNap, Scourge (Warrior Cats) and Ravenpaw, and J and Cyn from Murder Drones. 
 
+# SIGN MY STRAWPAGE!!!
+https://swiftspawn.straw.page/
+Thanks SO much if you do! Anywayyy...
+
 
 I love cats, I know there's no reason for you to know this but I LOVE CATS. THEY'RE SO SILLY AND CUTE AND RAHH!!! 
 
