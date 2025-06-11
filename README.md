@@ -1,6 +1,8 @@
 # About me! ฅ^•ﻌ•^ฅ
 Hello! Names you can call me are Nine, Spawn or whatever else you like / come up with a silly nickname for me!! I don't really mind which pronouns you use for me, but I prefer he/they.
 
+![Aroace] (https://img1.picmix.com/output/stamp/normal/5/2/3/8/1968325_bdfad.gif)
+
 Please do not copy any of my skins. If you want to take inspiration from one then that's fine but please ask me beforehand if I'm fine with it. As long as the skin you want to take inspo from is NOT one of my own OC's and not very heavy inspo, then I am most likely to be fine with it!!
 
 I may or may not be active on Pony Town, but I usually am ..
