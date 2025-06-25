@@ -1,5 +1,7 @@
 # About me! 🥌
 Hello! You can call me whatever you like/come up with a nickname. Pronouns I prefer are he/him or they/them 
+![download (20)](https://github.com/user-attachments/assets/a03e972a-34f3-48b5-a8f6-887d0869a6b8)
+
 
 Unless I'm talking to someone, I'm mostly afk/semi afk so if you want to interact please whisper because it's very unlikely I check public chat!!
 
