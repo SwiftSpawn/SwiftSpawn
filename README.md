@@ -11,6 +11,7 @@ Also I'm aroace, omni and demiboy
 
 Some of my fandoms because why not: FNaF, Regretevator, Murder Drones, Pokémon, Poppy Playtime, LHG, Forsaken(I don't play the game), Warrior Cats, TADC, Sonic, DW (Kinda), Gasa4, SCT and I don't feel like naming the rest
 
+![dusk-lycanroc](https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2F1133077587497247478%2F&psig=AOvVaw2dtxqQmo_e-shLRYffObd8&ust=1750945633397000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCKiChfbajI4DFQAAAAAdAAAAABBW)
 
 Anyway if you wanna be my friend or talk, feel free to! But just so you know, I am overly sensitive, so think a little bit over what you say to me, but most of the time I wouldn't really mind,,, Also I get close with people really easily so yeah I tend to act weird and clingy
 
