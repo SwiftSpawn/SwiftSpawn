@@ -25,4 +25,4 @@ Lick
 
 
 h Why does it reset 
-![Souls captured](https://komarev.com/ghpvc/?username=CynDotEXE)
+![Souls captured](https://komarev.com/ghpvc/?username=xSnow-Fall)
