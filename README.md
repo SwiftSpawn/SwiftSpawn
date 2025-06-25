@@ -4,7 +4,7 @@
 
 Hello! You can call me whatever you like/come up with a nickname. Pronouns I prefer are he/him or they/them 
 
-<img src="https://github.com/user-attachments/assets/a03e972a-34f3-48b5-a8f6-887d0869a6b8" width="50" height="25" /><img src="https://github.com/user-attachments/assets/0ab691ef-1a4f-4cb7-805f-99dab2d5779e" width="50" height="25" /><img src="https://github.com/user-attachments/assets/20b43422-1e96-43f8-ac77-7f1f42a0e0ac" width="50" height="25" /><img src="https://github.com/user-attachments/assets/034ee86c-718f-457c-939a-c89da3405656" width="50" height="25" /> 
+<img src="https://github.com/user-attachments/assets/a03e972a-34f3-48b5-a8f6-887d0869a6b8" width="50" height="25" /><img src="https://github.com/user-attachments/assets/0ab691ef-1a4f-4cb7-805f-99dab2d5779e" width="50" height="25" /><img src="https://github.com/user-attachments/assets/20b43422-1e96-43f8-ac77-7f1f42a0e0ac" width="50" height="25" /><img src="https://github.com/user-attachments/assets/034ee86c-718f-457c-939a-c89da3405656" width="50" height="25" /><img src="https://github.com/user-attachments/assets/d09644e6-e1ee-4c70-af4e-929694aa5953" width="50" height="25" /> 
 
 Unless I'm talking to someone, I'm mostly afk/semi afk so if you want to interact please whisper because it's very unlikely I check public chat!!
 
