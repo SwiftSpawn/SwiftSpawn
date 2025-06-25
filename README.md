@@ -10,7 +10,7 @@ I know this kind of makes sense but PLEASE do not copy any of my skins, there's 
 Some of my fandoms because why not: FNaF, Regretevator, Murder Drones, Pokémon, Poppy Playtime, LHG, Forsaken(I don't play the game), Warrior Cats, TADC, Sonic, DW (Kinda), Gasa4, SCT and I don't feel like naming the rest
 
 ![3a4cdfd9704cd4e2ae08b4ade7c2cb91](https://github.com/user-attachments/assets/9cafc977-cc03-4018-9c8d-9905d5716812)
-
+![lolbit-standby](https://raw.githubusercontent.com/xSnow-Fall/xSnow-Fall/refs/heads/main/lolbit-please-stand-by.gif)
 Anyway if you wanna be my friend or talk, feel free to! But just so you know, I am overly sensitive, so think a little bit over what you say to me, but most of the time I wouldn't really mind,,, Also I get close with people really easily so yeah I tend to act weird and clingy
 
 BYEE 👋😼
