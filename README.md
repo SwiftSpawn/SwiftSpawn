@@ -24,5 +24,6 @@ Lick
 
 
 
-h Why does it reset 
+h WHY DID IT RESET I HAD LIKE 100
+
 ![Souls captured](https://komarev.com/ghpvc/?username=xSnow-Fall)
