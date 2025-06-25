@@ -1,12 +1,9 @@
 # About me! 🥌
 Hello! You can call me whatever you like/come up with a nickname. Pronouns I prefer are he/him or they/them 
-<img src="(https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif)" width="50" height="25" />
 
 Unless I'm talking to someone, I'm mostly afk/semi afk so if you want to interact please whisper because it's very unlikely I check public chat!!
 
 I know this kind of makes sense but PLEASE do not copy any of my skins, there's a thing called "inspiration", and you can just come up with your own skins
-
-I may or may not be active on Pony Town, but I usually am,,,
 
 Some of my fandoms because why not: FNaF, Regretevator, Murder Drones, Pokémon, Poppy Playtime, LHG, Forsaken(I don't play the game), Warrior Cats, TADC, Sonic, DW (Kinda), Gasa4, SCT and I don't feel like naming the rest
 
