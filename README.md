@@ -24,6 +24,5 @@ Lick
 
 
 
-h WHY DID IT RESET I HAD LIKE 100
-
-![Souls captured](https://komarev.com/ghpvc/?username=xSnow-Fall)
+h
+![Profile views](https://komarev.com/ghpvc/?username=CynDotEXE)
