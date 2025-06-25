@@ -1,6 +1,8 @@
 # About me! 🥌
 Hello! You can call me whatever you like/come up with a nickname. Pronouns I prefer are he/him or they/them 
 
+Unless I'm talking to someone, I'm mostly afk/semi afk so if you want to interact please whisper because it's very unlikely I check public chat!!
+
 I know this kind of makes sense but PLEASE do not copy any of my skins, there's a thing called "inspiration", and you can just come up with your own skins
 
 I may or may not be active on Pony Town, but I usually am,,,
