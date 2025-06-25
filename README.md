@@ -1,7 +1,8 @@
 # About me! 🥌
 Hello! You can call me whatever you like/come up with a nickname. Pronouns I prefer are he/him or they/them 
 
-<img src="https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif" width="50" height="25" /> <img src="[https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif](https://img1.picmix.com/output/stamp/thumb/2/6/7/1/1981762_44ddd.gif)" width="50" height="25" />
+<img src="https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif" width="50" height="25" /> <img src="[https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif](https://img1.picmix.com/output/stamp/thumb/2/6/7/1/1981762_44ddd.gif)" width="50" height="25" /> <img src="[https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif](https://img1.picmix.com/output/stamp/normal/9/6/0/3/2723069_7d0d1.gif)" width="50" height="25" />
+
 Unless I'm talking to someone, I'm mostly afk/semi afk so if you want to interact please whisper because it's very unlikely I check public chat!!
 
 I know this kind of makes sense but PLEASE do not copy any of my skins, there's a thing called "inspiration", and you can just come up with your own skins
