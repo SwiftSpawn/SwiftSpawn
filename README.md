@@ -8,6 +8,7 @@ I know this kind of makes sense but PLEASE do not copy any of my skins, there's 
 I may or may not be active on Pony Town, but I usually am,,,
 
 Also I'm aroace, omni and demiboy
+<img src="https://github.com/user-attachments/assets/cf903973-47b2-49d2-b9f2-50cd39b09031" width="300"/>
 
 Some of my fandoms because why not: FNaF, Regretevator, Murder Drones, Pokémon, Poppy Playtime, LHG, Forsaken(I don't play the game), Warrior Cats, TADC, Sonic, DW (Kinda), Gasa4, SCT and I don't feel like naming the rest
 
