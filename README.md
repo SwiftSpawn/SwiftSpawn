@@ -1,6 +1,6 @@
 # About me! 🥌
 Hello! You can call me whatever you like/come up with a nickname. Pronouns I prefer are he/him or they/them 
-<img src="https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif" width="100" height="50" />
+<img src="https://img1.picmix.com/output/stamp/thumb/5/2/3/8/1968325_bdfad.gif" width="10" height="5" />
 
 Unless I'm talking to someone, I'm mostly afk/semi afk so if you want to interact please whisper because it's very unlikely I check public chat!!
 
