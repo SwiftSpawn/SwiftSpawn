@@ -1,6 +1,5 @@
 # About me! 🥌
-
-                                                                                                                                 (Last updated: 26-06-2025)
+    (Last updated: 26-06-2025)
 
 ![lolbit-standby](https://raw.githubusercontent.com/xSnow-Fall/xSnow-Fall/refs/heads/main/lolbit-please-stand-by.gif)
 
