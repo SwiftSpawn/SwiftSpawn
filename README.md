@@ -11,6 +11,7 @@ Unless I'm talking to someone, I'm mostly afk/semi afk so if you want to interac
 I know this kind of makes sense but PLEASE do not copy any of my skins, there's a thing called "inspiration", and you can just come up with your own skins
 
 Some of my fandoms because why not: FNaF, Regretevator, Murder Drones, Pokémon, Poppy Playtime, LHG, Forsaken(I don't play the game), Warrior Cats, TADC, Sonic, DW (Kinda), Gasa4, SCT and I don't feel like naming the rest. I also really like neon/glowing stuff!
+Pls int especially if you have the same interests!! If you dont then you can still int nws ^^
 
 -Kins: Broken Spawn, Cyn, Jax, Shelly (DW), Nine the Fox, CatNap, Dandicus Dancifer (In order of how much I kin)
 
