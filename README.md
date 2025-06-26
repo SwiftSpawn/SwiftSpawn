@@ -26,6 +26,7 @@ Pls int especially if you have the same interests!! If you dont then you can sti
 - Blind people /j
 - If you like saying gen alpha brainrot (e.g "skibidi")
 - Under the age of 12 (unless you're already my friend)
+- Homophobes / transphobes
 
 Anyway if you wanna be my friend or talk, feel free to! But just so you know, I am overly sensitive, so think a little bit over what you say to me, but most of the time I wouldn't really mind,,, Also I get close with people really easily so yeah I tend to act weird, clingy and 𝓯𝓻𝓮𝓪𝓴𝔂, it just means I feel comfortable
 
