@@ -12,7 +12,7 @@ I know this kind of makes sense but PLEASE do not copy any of my skins, there's 
 
 Some of my fandoms because why not: FNaF, Regretevator, Murder Drones, Pokémon, Poppy Playtime, LHG, Forsaken(I don't play the game), Warrior Cats, TADC, Sonic, DW (Kinda), Gasa4, SCT and I don't feel like naming the rest. I also really like neon/glowing stuff!
 
--Kins: Broken Spawn, Cyn, Shelly (DW), Nine the Fox, CatNap, Dandicus Dancifer (In order of how much I kin)
+-Kins: Broken Spawn, Cyn, Jax, Shelly (DW), Nine the Fox, CatNap, Dandicus Dancifer (In order of how much I kin)
 
 ![3a4cdfd9704cd4e2ae08b4ade7c2cb91](https://github.com/user-attachments/assets/9cafc977-cc03-4018-9c8d-9905d5716812)
 
