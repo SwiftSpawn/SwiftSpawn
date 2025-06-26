@@ -17,6 +17,14 @@ Pls int especially if you have the same interests!! If you dont then you can sti
 
 ![3a4cdfd9704cd4e2ae08b4ade7c2cb91](https://github.com/user-attachments/assets/9cafc977-cc03-4018-9c8d-9905d5716812)
 
+# DNI LIST!!!!
+- Pedophiles / zoophiles
+- Forsaken fandom (Only if you really glaze the game + unless friends)
+- Tcoaal (Only if ur weird)
+- Blind people /j
+- If you like saying gen alpha brainrot (e.g "skibidi")
+- Under the age of 12 (unless you're already my friend)
+
 Anyway if you wanna be my friend or talk, feel free to! But just so you know, I am overly sensitive, so think a little bit over what you say to me, but most of the time I wouldn't really mind,,, Also I get close with people really easily so yeah I tend to act weird, clingy and 𝓯𝓻𝓮𝓪𝓴𝔂, it just means I feel comfortable
 
 BYEE 👋😼
