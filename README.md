@@ -1,5 +1,7 @@
 # About me! 🥌
 
+                                                                                                                                 (Last updated: 26-06-2025)
+
 ![lolbit-standby](https://raw.githubusercontent.com/xSnow-Fall/xSnow-Fall/refs/heads/main/lolbit-please-stand-by.gif)
 
 Hello! You can call me whatever you like/come up with a nickname. Pronouns I prefer are he/him or they/them 
