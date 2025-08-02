@@ -4,6 +4,10 @@
 
 Uhh idk what to put here so I'll finish it later I think
 
+🌙 = semi-afk / offtab (W2I)
+⛔ = afk / dniuf (W2I)
+LF chat = pls int 🥹
+
 
 # DNI list bc why not
 - Pedophiles / zoophiles
