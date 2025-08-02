@@ -18,6 +18,7 @@ Uhh idk what to put here so I'll finish it later I think
   Btw please iwec since I'm very oversensitive 🥹
 
   
+![8c2992f5aa019d418c2811d50c605072](https://github.com/user-attachments/assets/bb73fc00-f99e-4b5c-8a4a-7eb96c9e4f60)
 
 
 h
