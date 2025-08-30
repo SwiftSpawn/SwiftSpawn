@@ -29,6 +29,7 @@ Uhh idk what to put here so I'll finish it later I think
 - FNaF
 - Murder Drones
 - Indigo Park
+
   If you're into any of these fandoms as well pls int 😋 ok
 
   bye
