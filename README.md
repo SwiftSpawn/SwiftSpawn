@@ -1,7 +1,5 @@
 # waves
 
-<img src="https://github.com/user-attachments/assets/241909b7-a17d-4108-9182-37ceff797be6" width="200" height="400"/> Umbreon is literally me trust
-
 Uhh idk what to put here so I'll finish it later I think
 
 🌙 = semi-afk / offtab (W2I)
@@ -15,7 +13,7 @@ Uhh idk what to put here so I'll finish it later I think
 - Homophobes / transphobes
 - Humans
 
-  Btw please iwec since I'm very oversensitive 🥹
+  Btw please iwc since I'm very sensitive 🥹
 
   
 ![8c2992f5aa019d418c2811d50c605072](https://github.com/user-attachments/assets/bb73fc00-f99e-4b5c-8a4a-7eb96c9e4f60)
