@@ -23,6 +23,7 @@ Uhh idk what to put here so I'll finish it later I think
 # Fandoms I'm in...? okay...?
 - Dandy's World
 - Pokémon
+- TADC
 - Sonic the Hedgehog
 - Warrior Cats
 - Poppy Playtime
