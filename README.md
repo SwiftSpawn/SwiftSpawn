@@ -6,7 +6,7 @@ Uhh idk what to put here so I'll finish it later I think
 
 🌙 = semi-afk / offtab (W2I)
 | ⛔ = afk / dniuf (W2I)
-| LF chat = pls int 🥹
+| LF chat = pls int 🥹 (If I have W2I in my name then I probably won't ever check public chat so pls whisper if you want to talk to me)
 
 
 # DNI list bc why not
