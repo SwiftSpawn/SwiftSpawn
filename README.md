@@ -6,7 +6,7 @@ Uhh idk what to put here so I'll finish it later I think
 
 🌙 = semi-afk / offtab (W2I)
 | ⛔ = afk / dniuf (W2I)
-| LF chat = pls int 🥹 (If I have W2I in my name then I probably won't ever check public chat so pls whisper if you want to talk to me)
+| LF chat = pls int. ok. (If W2I PLEASE whisper if you want to interact bcz it's extremely likely I won't check local chat)
 
 
 # DNI list bc why not
@@ -15,12 +15,12 @@ Uhh idk what to put here so I'll finish it later I think
 - Homophobes / transphobes
 - Humans
 
-  Btw please iwc since I'm very sensitive 🥹
+  Btw please iwc since I'm very sensitive yayey
 
   
 ![8c2992f5aa019d418c2811d50c605072](https://github.com/user-attachments/assets/bb73fc00-f99e-4b5c-8a4a-7eb96c9e4f60)
 
-# Fandoms I'm in...? okay...?
+# Fandoms I'm in...? okay...? i know it's alot shh
 - Dandy's World
 - Pokémon
 - TADC
@@ -30,6 +30,8 @@ Uhh idk what to put here so I'll finish it later I think
 - FNaF
 - Murder Drones
 - Indigo Park
+- Forsaken
+  
 
   If you're into any of these fandoms as well pls int 😋 ok
 
