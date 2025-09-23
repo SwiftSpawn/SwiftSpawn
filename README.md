@@ -14,6 +14,7 @@ Uhh idk what to put here so I'll finish it later I think
 - Under 13
 - Homophobes / transphobes
 - Humans
+- KPDH fans
 
   Btw please iwc since I'm very sensitive yayey
 
