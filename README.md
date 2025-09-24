@@ -34,6 +34,9 @@ Uhh idk what to put here so I'll finish it later I think
 - Murder Drones
 - Indigo Park
 - Forsaken
+
+  If you're into any of these fandoms as well pls int 😋 ok
+
   
 ![indigo-park](https://github.com/user-attachments/assets/86a6245f-2cde-4d75-931b-52dd7d031466)
 
@@ -41,11 +44,9 @@ Uhh idk what to put here so I'll finish it later I think
 For some reason I tend to be bad at remembering who people are (especially if you befriend me and then don't talk to me for a while), I try to remember / add notes but if I forget who you are then I'm so sorry
 
 
-  If you're into any of these fandoms as well pls int 😋 ok
-
-  bye
+# disclaimer: im annoying asl and tend to make unfunny jokes
   
-
+ok bye !
 h
 ![Profile views](https://komarev.com/ghpvc/?username=CynDotEXE)
 
