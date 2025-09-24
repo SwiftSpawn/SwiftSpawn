@@ -44,7 +44,7 @@ Uhh idk what to put here so I'll finish it later I think
 For some reason I tend to be bad at remembering who people are (especially if you befriend me and then don't talk to me for a while), I try to remember / add notes but if I forget who you are then I'm so sorry
 
 
-# disclaimer: im annoying asl and tend to make unfunny jokes
+# disclaimer: im annoying asl and often make unfunny jokes
   
 ok bye !
 h
