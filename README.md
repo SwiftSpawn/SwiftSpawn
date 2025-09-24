@@ -18,6 +18,8 @@ Uhh idk what to put here so I'll finish it later I think
 
   Btw please iwc since I'm very sensitive yayey
 
+  Also pls don't become my friend. You can send friend req and interact every now and then if you want but pls don't get super close.
+
   
 ![8c2992f5aa019d418c2811d50c605072](https://github.com/user-attachments/assets/bb73fc00-f99e-4b5c-8a4a-7eb96c9e4f60)
 
@@ -33,6 +35,11 @@ Uhh idk what to put here so I'll finish it later I think
 - Indigo Park
 - Forsaken
   
+![indigo-park](https://github.com/user-attachments/assets/86a6245f-2cde-4d75-931b-52dd7d031466)
+
+
+For some reason I tend to be bad at remembering who people are (especially if you befriend me and then don't talk to me for a while), I try to remember / add notes but if I forget who you are then I'm so sorry
+
 
   If you're into any of these fandoms as well pls int 😋 ok
 
