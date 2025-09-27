@@ -2,6 +2,9 @@
 
 # hi
 
+<img width="1168" height="213" alt="98a571e935fc325063cf94c0573d75b5-removebg-preview" src="https://github.com/user-attachments/assets/e32c0ce9-1e3d-4afc-8ea3-ebc7dec5b6b3" />
+
+
 ![114a4c26-6df6-46b8-ba8a-bb05d8ffe82d](https://github.com/user-attachments/assets/66867eda-fc8f-4674-b995-f897a2430922)
 
 🌙 = semi-afk / offtab (W2I)
