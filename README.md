@@ -1,14 +1,13 @@
 `Still a work in progress`
 
-# hello. waves
+# hi
 
 ![114a4c26-6df6-46b8-ba8a-bb05d8ffe82d](https://github.com/user-attachments/assets/66867eda-fc8f-4674-b995-f897a2430922)
 
 🌙 = semi-afk / offtab (W2I)
 | ⛔ = afk / dniuf (W2I)
 
-(If W2I PLEASE whisper if you want to talk to me because I never check normal chat)
-
+(If W2I please whisper if you want to talk to me because I never check normal chat) 
 
 # DNI list:
 - Pedophiles / zoophiles
@@ -19,7 +18,7 @@
 
   Please iwc/iwec. I'm very oversensitive sorry.
 
-  > Also pls don't become my friend. You can send friend req and interact every now and then if you want but pls don't get _super_ close.
+  > Also pls don't become my friend. You can send friend req and interact every now and then if you want but pls don't get _super_ close. I don't want new friends
 
   
 ![8c2992f5aa019d418c2811d50c605072](https://github.com/user-attachments/assets/bb73fc00-f99e-4b5c-8a4a-7eb96c9e4f60)
