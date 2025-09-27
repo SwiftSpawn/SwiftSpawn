@@ -1,7 +1,7 @@
 `Still a work in progress`
 
 # hi
-
+<img width="128" height="128" alt="chien-pao" src="https://github.com/user-attachments/assets/81663f56-b80f-4168-82cd-beb401580c4b" />
 <img width="1168" height="213" alt="98a571e935fc325063cf94c0573d75b5-removebg-preview" src="https://github.com/user-attachments/assets/e32c0ce9-1e3d-4afc-8ea3-ebc7dec5b6b3" />
 
 
@@ -52,7 +52,8 @@ For some reason I tend to be bad at remembering who people are (especially if yo
 
 ![umbreon-dark-type](https://github.com/user-attachments/assets/10725cde-e3be-4fd4-9076-26e52bffdbaa)
 
-<img width="1168" height="213" alt="98a571e935fc325063cf94c0573d75b5-removebg-preview" src="https://github.com/user-attachments/assets/e32c0ce9-1e3d-4afc-8ea3-ebc7dec5b6b3" />
+![output-onlinegiftools](https://github.com/user-attachments/assets/9b766d24-915a-4598-ba34-1f65f5bee465)
+
 
 <sup>ok bye !</sup>
 <sub>h</sub>
