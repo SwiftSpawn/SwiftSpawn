@@ -49,8 +49,14 @@ For some reason I tend to be bad at remembering who people are (especially if yo
 
 
 # disclaimer: i'm annoying asl and tend to make unfunny jokes
-  
+
+![umbreon-dark-type](https://github.com/user-attachments/assets/10725cde-e3be-4fd4-9076-26e52bffdbaa)
+
+<img width="1168" height="213" alt="98a571e935fc325063cf94c0573d75b5-removebg-preview" src="https://github.com/user-attachments/assets/e32c0ce9-1e3d-4afc-8ea3-ebc7dec5b6b3" />
+
 <sup>ok bye !</sup>
 <sub>h</sub>
 ![Profile views](https://komarev.com/ghpvc/?username=CynDotEXE)
+
+<img width="1168" height="213" alt="98a571e935fc325063cf94c0573d75b5-removebg-preview" src="https://github.com/user-attachments/assets/e32c0ce9-1e3d-4afc-8ea3-ebc7dec5b6b3" />
 
