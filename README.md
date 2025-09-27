@@ -52,7 +52,7 @@ For some reason I tend to be bad at remembering who people are (especially if yo
 
 ![umbreon-dark-type](https://github.com/user-attachments/assets/10725cde-e3be-4fd4-9076-26e52bffdbaa)
 
-![output-onlinegiftools](https://github.com/user-attachments/assets/9b766d24-915a-4598-ba34-1f65f5bee465)
+![tumblr_7971d037af6d71f0792c8259090b705e_ef6ed27a_640](https://github.com/user-attachments/assets/efdec95c-155d-4a34-8c9b-0fbd30d9c9a5)
 
 
 <sup>ok bye !</sup>
