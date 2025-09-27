@@ -1,12 +1,12 @@
-# waves
+`Still a work in progress`
 
-Uhh idk what to put here so I'll finish it later I think
+# hello. waves
 
 ![114a4c26-6df6-46b8-ba8a-bb05d8ffe82d](https://github.com/user-attachments/assets/66867eda-fc8f-4674-b995-f897a2430922)
 
 🌙 = semi-afk / offtab (W2I)
 | ⛔ = afk / dniuf (W2I)
-| LF chat = pls int. ok. (If W2I PLEASE whisper if you want to interact bcz it's extremely likely I won't check local chat)
+/(If W2I PLEASE whisper if you want to interact bcz it's extremely likely I won't check local chat)
 
 
 # DNI list bc why not
