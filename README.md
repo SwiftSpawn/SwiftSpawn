@@ -7,7 +7,7 @@
 🌙 = semi-afk / offtab (W2I)
 | ⛔ = afk / dniuf (W2I)
 
-@@ (If W2I PLEASE whisper if you want to talk to me because I never check normal chat)@@
+@@(If W2I PLEASE whisper if you want to talk to me because I never check normal chat)@@
 
 
 # DNI list:
@@ -37,13 +37,13 @@
 - Cats are Liquid
 - ~~Forsaken~~
   
-  @@ If you're into any of these fandoms as well pls int, but even if you aren't you can still interact@@
+  If you're into any of these fandoms as well pls int, but even if you aren't you can still interact
 
   
 ![indigo-park](https://github.com/user-attachments/assets/86a6245f-2cde-4d75-931b-52dd7d031466)
 
 
-@@For some reason I tend to be bad at remembering who people are (especially if you befriend me and then don't talk to me for a while), I try to remember / add notes but if I forget who you are then I'm so sorry @@
+For some reason I tend to be bad at remembering who people are (especially if you befriend me and then don't talk to me for a while), I try to remember / add notes but if I forget who you are then I'm so sorry
 
 
 # disclaimer: i'm annoying asl and tend to make unfunny jokes
