@@ -7,7 +7,7 @@
 🌙 = semi-afk / offtab (W2I)
 | ⛔ = afk / dniuf (W2I)
 
-@@(If W2I PLEASE whisper if you want to talk to me because I never check normal chat)@@
+<code style=" color : magenta">TESTE</code>(If W2I PLEASE whisper if you want to talk to me because I never check normal chat)
 
 
 # DNI list:
