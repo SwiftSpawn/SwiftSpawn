@@ -33,16 +33,13 @@ and dont copy any of my skins!! its okay if you take inspo as long as it isn't l
 - Regretevator
   
 
-  
-![indigo-park](https://github.com/user-attachments/assets/86a6245f-2cde-4d75-931b-52dd7d031466)
+  ![vox-hazbin-hotel-season-2](https://github.com/user-attachments/assets/f90ac52e-8337-4bb7-827d-9f62d3d01921)
 
 
 For some reason I tend to be bad at remembering who people are (especially if you befriend me and then don't talk to me for a while), I try to remember / add notes but if I forget who you are then I'm so sorry
 
 
-
-![umbreon-dark-type](https://github.com/user-attachments/assets/10725cde-e3be-4fd4-9076-26e52bffdbaa)
-
+![truechara-hazbin-hotel](https://github.com/user-attachments/assets/8a624770-b0ab-418f-bac2-9e4c21a1133b)
 
 
 <sup>ok bye !</sup>
