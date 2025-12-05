@@ -1,10 +1,9 @@
 `Still a work in progress`
 
-![giphy](https://github.com/user-attachments/assets/cad4f94a-649c-4676-abda-c23735a79cc1)
+![ezgif-71ad19439ec8f078](https://github.com/user-attachments/assets/44220378-27bc-4037-8de2-3b9233a6aa9d)
 # hi
 
-![tumblr_mgtxqzDp331rv6iido1_500](https://github.com/user-attachments/assets/5c7b39d6-ca59-448c-8194-9df38da67af1)
-
+![ezgif-7738a80af5e3bf05](https://github.com/user-attachments/assets/33cae76f-e229-4e95-ac8b-55f621973785)
 
 🌙 = semi-afk / offtab (W2I)
 | ⛔ = afk / dniuf (W2I)
@@ -23,8 +22,7 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 dont send random friend requests 💔
 
 and dont copy any of my skins!! its okay if you take inspo as long as it isn't like the entire pony
-  
-<img width="100" height="50" alt="9-1 thumb128" src="https://github.com/user-attachments/assets/5da70060-13c2-4be9-b860-1e1e473c0e1e" />
+
 
 # fandoms I'm in:
 - Dandy's World
@@ -34,8 +32,7 @@ and dont copy any of my skins!! its okay if you take inspo as long as it isn't l
 - Regretevator
   
 
-  ![vox-hazbin-hotel-season-2](https://github.com/user-attachments/assets/f90ac52e-8337-4bb7-827d-9f62d3d01921)
-
+  ![ezgif-743ee53075b75c5c](https://github.com/user-attachments/assets/4948bc2f-32d9-4602-b588-9ddced273d17)
 
 For some reason I tend to be bad at remembering who people are (especially if you befriend me and then don't talk to me for a while), I try to remember / add notes but if I forget who you are then I'm so sorry
 
