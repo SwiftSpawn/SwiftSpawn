@@ -13,11 +13,13 @@
 pls always whisper if you wanna talk bcz i never pay attention to the game so i never check the public chat
 
 # DNI list:
--Pedophiles / zoophiles
--Under 13
--Homophobes / transphobes
--Humans
--Forsaken fandom
+● Pedophiles / zoophiles
+● Under 13
+● Homophobes / transphobes
+● Humans
+● Forsaken fandom
+
+
 
 
 Please iwc, im very sensitive sorry
@@ -26,11 +28,11 @@ dont send random friend requests puh-lease 💔
 
 
 # Fandoms I'm in:
--Dandy's World
--Hazbin Hotel
--Pokémon
--Warrior Cats
--Regretevator
+● Dandy's World
+● Hazbin Hotel
+● Pokémon
+● Warrior Cats
+● Regretevator
 
 ![ezgif-743ee53075b75c5c](https://github.com/user-attachments/assets/4948bc2f-32d9-4602-b588-9ddced273d17)
 
