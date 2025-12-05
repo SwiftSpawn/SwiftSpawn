@@ -45,7 +45,7 @@ i try to remember but if i forget then im so sorry!
 <sup>ok bye !</sup><br>
 <sub>h</sub>
 
-![stalkers👀](https://img.shields.io/badge/views-2763-8A2BE2)
+![profile views](https://img.shields.io/badge/views-2763-8A2BE2) 👀
 
 
 </div>
