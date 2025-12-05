@@ -1,6 +1,9 @@
 `Still a work in progress`
 
+![giphy](https://github.com/user-attachments/assets/cad4f94a-649c-4676-abda-c23735a79cc1)
 # hi
+
+![tumblr_mgtxqzDp331rv6iido1_500](https://github.com/user-attachments/assets/5c7b39d6-ca59-448c-8194-9df38da67af1)
 
 
 🌙 = semi-afk / offtab (W2I)
@@ -21,7 +24,7 @@ dont send random friend requests 💔
 
 and dont copy any of my skins!! its okay if you take inspo as long as it isn't like the entire pony
   
-![8c2992f5aa019d418c2811d50c605072](https://github.com/user-attachments/assets/bb73fc00-f99e-4b5c-8a4a-7eb96c9e4f60)
+<img width="100" height="50" alt="9-1 thumb128" src="https://github.com/user-attachments/assets/5da70060-13c2-4be9-b860-1e1e473c0e1e" />
 
 # fandoms I'm in:
 - Dandy's World
