@@ -45,6 +45,7 @@ i try to remember but if i forget then im so sorry!
 <sup>ok bye !</sup><br>
 <sub>h</sub>
 
+![views](https://img.shields.io/badge/views-2763-8A2BE2)
 ![Profile views](https://komarev.com/ghpvc/?username=CynDotEXE)
 
 </div>
