@@ -12,23 +12,25 @@
 
 pls always whisper if you wanna talk bcz i never pay attention to the game so i never check the public chat
 
-**DNI list:**
-- Pedophiles / zoophiles
-- Under 13
-- Homophobes / transphobes
-- Humans
-- Forsaken fandom
+# DNI list:
+-Pedophiles / zoophiles
+-Under 13
+-Homophobes / transphobes
+-Humans
+-Forsaken fandom
+
 
 Please iwc, im very sensitive sorry
 
 dont send random friend requests puh-lease 💔
 
-**Fandoms I'm in:**
-- Dandy's World
-- Hazbin Hotel
-- Pokémon
-- Warrior Cats
-- Regretevator
+
+# Fandoms I'm in:
+-Dandy's World
+-Hazbin Hotel
+-Pokémon
+-Warrior Cats
+-Regretevator
 
 ![ezgif-743ee53075b75c5c](https://github.com/user-attachments/assets/4948bc2f-32d9-4602-b588-9ddced273d17)
 
@@ -44,12 +46,3 @@ i try to remember but if i forget then im so sorry!
 ![Profile views](https://komarev.com/ghpvc/?username=CynDotEXE)
 
 </div>
-
-![truechara-hazbin-hotel](https://github.com/user-attachments/assets/8a624770-b0ab-418f-bac2-9e4c21a1133b)
-
-
-<sup>ok bye !</sup>
-<sub>h<‎/sub>
-
-![Profile views](https://komarev.com/ghpvc/?username=CynDotEXE)
-
