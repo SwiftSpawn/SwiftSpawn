@@ -19,10 +19,8 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 
   Please iwc/iwec. I'm very oversensitive sorry.
 
-dont send random friend requests 💔
-
-and dont copy any of my skins!! its okay if you take inspo as long as it isn't like the entire pony
-
+dont send random friend requests puh-lease 💔
+ 
 
 # fandoms I'm in:
 - Dandy's World
