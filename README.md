@@ -19,8 +19,7 @@ pls always whisper if you wanna talk bcz i never pay attention to the game so i 
 ● Humans
 ● Forsaken fandom
 
-
-
+‿︵‿︵⋆⋅⚝⋅⋆︵‿︵‿
 
 Please iwc, im very sensitive sorry
 
